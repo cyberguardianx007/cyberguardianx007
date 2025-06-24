@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cyberguardianx007
-- 👀 I’m interested in cybersecurity 
+- 👀 I’m interested in BLUE TEAMING
 - 🌱 I’m BCA graduate
 - 📫 How to reach me, Please mail me on cyberguardianx007@gmail.com
 - 😄 Pronouns: He/ Male
